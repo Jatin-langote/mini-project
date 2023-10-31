@@ -1,2 +1,3 @@
-# nesk jcnjjnkc kncdckndc n
-# lmflf lfldl,  lm
+# This is the mini projects 
+
+# Creatied by me
